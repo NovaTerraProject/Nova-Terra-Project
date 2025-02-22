@@ -1,4 +1,4 @@
-Our Mission
+Our Mission - novaterraproject.com
 
 We believe in a world where every individual has the opportunity to thrive, free from outdated systems of control and inefficiency. The Nova Terra Project is a collaborative initiative designed to rethink and rebuild the structures that shape society. Through innovation, transparency, and collective intelligence, we aim to create a future that prioritizes well-being, sustainability, and freedom.
 
